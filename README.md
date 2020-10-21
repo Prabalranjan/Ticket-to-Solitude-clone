@@ -7,4 +7,4 @@ everone is allowed to edit commit on this project and have fun,, specially biggi
 
 
 
-and please do  cheack out her original site and follow her.(link is on the 4th line)
+and please do  cheack out her original site and follow her.
